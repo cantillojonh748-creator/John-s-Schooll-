@@ -1,2 +1,2 @@
-# John-s-Schooll-
+INSTITUCION EDUCATIVA JONH-
 Sitio web educativo 
